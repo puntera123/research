@@ -2,4 +2,5 @@
 {"dg-publish":true,"permalink":"/party/","dgPassFrontmatter":true}
 ---
 
-**links;** [[Ellen von Unwerth\|Ellen von Unwerth]], [[After networking\|After networking]]
+- Photography [[Ellen von Unwerth\|Ellen von Unwerth]]
+- Photography [[After networking\|After networking]] (Lee Chapman)
