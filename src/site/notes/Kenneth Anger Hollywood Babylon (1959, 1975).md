@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/kenneth-anger-hollywood-babylon-1959-1975/","dgPassFrontmatter":true}
+{"dg-publish":true,"![[PDF/Kenneth Anger - Hollywood Babylon I - 1975.1.1.compressed (arrastrado).pdf]]":true,"permalink":"/kenneth-anger-hollywood-babylon-1959-1975/","dgPassFrontmatter":true}
 ---
 
 ![[Kenneth Anger - Hollywood Babylon I - 1975.1.1.compressed (arrastrado).pdf]]
