@@ -21,3 +21,4 @@ What is the intended Impact? What do I hope the project will achieve?
 	I want to show the viewer in an ironic and raw way how ‘power’ and contacts often trump talent, and how sexuality is used as a tool for promotion within the fashion world.  
 	Generate discussion about internal corruption in the industry and question the validity of traditional methods of achieving success.
 
+**links;** [[Sexual attraction\|Sexual attraction]], [[Sastirical\|Sastirical]], [[Networking\|Networking]], [[Fashion\|Fashion]]
