@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/idea-1/","tags":["gardenEntry"]}
+{"dg-publish":true,"dg-home":true,"permalink":"/idea-1/","tags":["gardenEntry"],"dgPassFrontmatter":true}
 ---
 
 **What is the subject?**
