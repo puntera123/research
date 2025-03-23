@@ -3,7 +3,6 @@
 ---
 
 ![39.png](/img/user/39.png)
-
 Helmut Newton, *47 nudes* (Introduction by Karl Largerfeld)
 
 It caught my attention because it shows a power play between domination and submission, where the body becomes an object of desire and control.
