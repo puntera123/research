@@ -8,7 +8,7 @@
  - News [[Matt Hancock’s secret affair\|Matt Hancock’s secret affair]]
  - Photography [[Robert Mapplethorpe\|Robert Mapplethorpe]]
  - Photography [[Cindy Sherman\|Cindy Sherman]]
- - Photography[[Peter Hujar\|Peter Hujar]]
+ - Photography [[Peter Hujar\|Peter Hujar]]
  - Collage [[L.H.O.O.Q\|L.H.O.O.Q]]
  - Photography [[Cindy Sherman\|Cindy Sherman]]
 
