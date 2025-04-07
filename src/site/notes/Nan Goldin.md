@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/nan-goldin/","dgPassFrontmatter":true}
 ---
 
-![nan1 1.jpg](/img/user/nan1%201.jpg)
+![nann1.jpg](/img/user/nann1.jpg)
 Nan Goldin, *The devil´s Playground*: Clemens lighting Jens' cigarette (Paris, 2001)
 
 
