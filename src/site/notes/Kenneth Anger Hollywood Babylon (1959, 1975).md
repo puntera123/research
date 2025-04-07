@@ -4,7 +4,7 @@
 
 ![babilonia.png](/img/user/babilonia.png)
 
-This book caught my attention because it is a recapitulation of the perversions of the film industry, <span style="color:rgb(192, 0, 0)">a catalogue of decadence disguised as glamour,</span> a bit similar to what I want to do in my project but with the fashion industry. The author's intention is to dismantle the beauty of Hollywood, exposing all the networks of sex, power and manipulation that sustain its structure.  x
+This book caught my attention because it is a recapitulation of the perversions of the film industry, <span style="color:rgb(192, 0, 0)">a catalogue of decadence disguised as glamour,</span> a bit similar to what I want to do in my project but with the fashion industry. The author's intention is to dismantle the beauty of Hollywood, exposing all the networks of sex, power and manipulation that sustain its structure.  
 
 
 ![Sin título 1.png](/img/user/Sin%20t%C3%ADtulo%201.png)
