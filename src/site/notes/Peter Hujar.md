@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/peter-hujar/","dgPassFrontmatter":true}
 ---
 
-![hunjar.jpg](/img/user/hunjar.jpg)
+![hujarr2.jpg](/img/user/hujarr2.jpg)
 Klaus Kertess *Animals and Nudes*: Peter Hujar
 
 
