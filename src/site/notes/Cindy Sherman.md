@@ -9,5 +9,5 @@ Cindy Sherman
 
 I am interested in applying this reference to talk about how the <span style="color:rgb(192, 0, 0)">fashion industry turns people into disposable objects, a kind of sexual toy, using their bodies as a bargaining chip.</span>
 
-**Links;** [[Sexual attraction \|Sexual attraction ]]
+**Links;** [[Sexual attraction\|Sexual attraction]]
 
