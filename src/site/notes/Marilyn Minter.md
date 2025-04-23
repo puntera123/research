@@ -12,4 +12,5 @@ In my opinion, all this makes his message more powerful: <span style="color:rgb(
   
 I am interested in using this ability to insinuate, to build tension from detail in my project. I'm not interested in stating the message explicitly, but in making the <span style="color:rgb(192, 0, 0)">viewer stop to think and question by themselves.</span>
 
-**Links;** [[Sexual attraction\|Sexual attraction]], [[Sastirical\|Sastirical]]
+**Links;** [[Sexual attraction\|Sexual attraction]]
+
