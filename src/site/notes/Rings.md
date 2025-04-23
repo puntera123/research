@@ -3,6 +3,7 @@
 ---
 
 I was interested in exploring the meaning of men's rings, I knew they symbolised power, but I wanted to justify this deduction, the first thing that came to my mind were those portraits of kings and figures of power surrounded by wealth and rings.
+
 ![anillos.jpg](/img/user/anillos.jpg)
 
 I ended up coming across the article [‘Men's rings and their place in style history’](https://couturenotebook.com/best-haute-couture-blog/mens-rings-and-history). This article narrates how<span style="color:rgb(192, 0, 0)"> historically, rings on men's hands have functioned as symbols of status or belonging to specific groups, from the religious to the marginal</span> where in certain contexts they were seen as effeminate or linked to criminals.
