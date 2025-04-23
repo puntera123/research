@@ -8,5 +8,5 @@
 I am interested in the image of Matt Hancock kissing his advisor Gina Coladangelo, as it exemplifies <span style="color:rgb(192, 0, 0)">how personal relationships in powerful environments are very much in evidence. </span>
 I wonder, without wishing to take credit away from either of them, whether they got to the positions they were in on their own or whether there was some kind of special treatment.
 
-**Links;** [[Sexual attraction\|Sexual attraction]], [[Networking\|Networking]]
+**Links;** [[Sexual attraction\|Sexual attraction]], [[Networking\|Networking]], [[Power dynamics\|Power dynamics]]
 

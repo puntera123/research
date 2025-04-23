@@ -7,7 +7,7 @@
 
 Cindy Sherman
 
-I am interested in applying this reference to talk about how the <span style="color:rgb(192, 0, 0)">fashion industry turns people into disposable objects, a kind of sexual toy, using their bodies as a bargaining chip.</span>
+I am interested in exploring how power dynamics are represented in sexual relationships. That is why I find Cindy Sherman's photographs so provocative, they allow me to talk about how the <span style="color:rgb(192, 0, 0)">fashion industry turns people into disposable objects, into a sexual toy and uses their bodies as a bargaining chip.</span> Through these photographs, I can visually represent these dyadic relationships where <span style="color:rgb(192, 0, 0)">objectification, dominance and interest</span> play a big role. 
 
-**Links;** [[Sexual attraction\|Sexual attraction]]
+**Links;** [[Sexual attraction\|Sexual attraction]], [[Power dynamics\|Power dynamics]]
 
