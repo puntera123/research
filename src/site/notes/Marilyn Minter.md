@@ -6,7 +6,7 @@
 
 Marilyn Minter's work has caught my attention because of the <span style="color:rgb(192, 0, 0)">way she manages to capture details and suggest sexual situations without explicitly showing them.</span> Her close focus on body parts, textures and fluids makes me feel on the borderline between the beautiful and the uncomfortable.  
 
-![mary2 1.jpg](/img/user/mary2%201.jpg)
+![marin3.jpg](/img/user/marin3.jpg)
 
 In my opinion, all this makes his message more powerful: <span style="color:rgb(192, 0, 0)">there is no complete image, but a series of visual clues that invite the imagination and almost function as a psychological work.  </span>
   
