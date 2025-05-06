@@ -2,7 +2,9 @@
 {"dg-publish":true,"permalink":"/star-n33/","dgPassFrontmatter":true}
 ---
 
-[Star 33 (1978)](https://archive.org/details/star_bcn_33/page/n19/mode/2up)![comic.jpg](/img/user/comic.jpg)
+![comic.jpg](/img/user/comic.jpg)
+
+[Star 33 (1978)](https://archive.org/details/star_bcn_33/page/n19/mode/2up)
 
 Star (1974-1980) was a Spanish underground magazine that emerged in the post-Franco transition. It was an epicentre of punk aesthetics and fused sex, drugs and anarchy with a scathing observation of Spanish society.
 
