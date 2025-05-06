@@ -12,4 +12,4 @@ It caught my attention because it shows a power play between domination and subm
 
 What interests me is how, throughout this series of photographs, Newton explores the vulnerability of the naked body and how he fuses it with the imposing presence of the models' gaze and the light of day. In this play of contrasts, the fragility of the body is transformed into a symbol of power that challenges the traditional perception of nudity in fashion photography.
 
-**Links;** [[Sexual attraction\|Sexual attraction]],  [[Fashion\|Fashion]]
+**Links;** [[Sexual attraction\|Sexual attraction]], 
