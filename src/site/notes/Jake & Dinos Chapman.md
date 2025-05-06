@@ -8,4 +8,4 @@ Many of their pieces dialogue with the body as an object of consumption, alterin
 The exhibition entitled ‘Zygotic Acceleration, Biogenetic, De-Sublimated Libidinal Model’ has been the one that has stuck in my head the most, where the brothers melded naked child mannequins together and their noses and mouths were replaced with genitals and they are wearing nothing but Nike trainers, supposedly a representation of child consumerism.
 Although this show was quickly cancelled.
 
-**Links;** [[Sastirical critique\|Sastirical critique]]
+**Links;** [[Satirical critique\|Satirical critique]]

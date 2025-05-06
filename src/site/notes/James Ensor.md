@@ -8,5 +8,5 @@ I find James Ensor's work very interesting because of the way he uses absurdity 
 
 The way in which he manages to show the most false, human and absurd side of society it gave me a lot to reflect about.
 
-**Links;** [[Sastirical critique\|Sastirical critique]]
+**Links;** [[Satirical critique\|Satirical critique]]
 

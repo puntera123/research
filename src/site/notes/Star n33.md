@@ -12,4 +12,4 @@ What has interested me about Star is how he used satire comics to demolish the m
 
 I want to implement these satirical strips in my project where I describe short scenes to degrade the romanticism placed on the fashion industry and criticise the use of sex as a bargaining chip.
 
-**Link;** [[Sastirical critique\|Sastirical critique]]
+**Link;** [[Satirical critique\|Satirical critique]]
